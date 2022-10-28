@@ -1,0 +1,1 @@
+# sanggatalk-resources
